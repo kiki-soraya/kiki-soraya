@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @kiki-soraya
+- 👀 I’m interested in Data
+- 🌱 I’m currently learning Data Analytics
+- 📫 How to reach me : email me through @kikisorayaa@gmail.com
